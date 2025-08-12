@@ -1,6 +1,6 @@
 ## loiana mi novia 
 
-![Texto alternativo](https://i.pinimg.com/736x/a9/a8/53/a9a8533cd3f519ab8928ef5696f16f9a.jpg)
+![Texto alternativo](https://i.pinimg.com/736x/4a/38/d5/4a38d54ed43ab3b31a1f47ebccda310b.jpg)
 
 
 my apresentation:
