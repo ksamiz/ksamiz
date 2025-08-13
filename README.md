@@ -19,3 +19,5 @@
 - estou querendo aprender programação como um hobby ou uma formação a mais, um desenvolvimento e desafio a mais
 - eu gosto bastante de jogos, meus favoritos como _**Ghost of tsushima; The last of us 2; mortal kombat X; project zomboid e minecraft**_
 - minha marca de carro favorita é a _**Mitsubishi**_
+
+![](https://media1.tenor.com/m/BJ-9w-MUVCMAAAAC/tis100-sad.gif)
