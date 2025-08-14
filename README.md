@@ -1,6 +1,6 @@
-### **Boa tarde, Bem-Vindo! 🌇**
+### **Boa tarde, Bem-Vindo(a)! 🌇**
 
-![Texto alternativo](https://i.pinimg.com/736x/4a/38/d5/4a38d54ed43ab3b31a1f47ebccda310b.jpg)
+![Texto alternativo](https://i.pinimg.com/1200x/ca/3f/83/ca3f83f02044b6fcb9bb8dd3841b71e9.jpg)
 
 
 # 💫 **Minha Apresentação:**
@@ -11,13 +11,13 @@
 - Quero me formar em _**Enfermagem**_
 - E eu amo _**Carros**_
 
-![Texto alternativo](https://i.pinimg.com/736x/e2/c8/21/e2c82120a3111d153a81596f4b3e71f2.jpg)
+![Texto alternativo](https://i.pinimg.com/1200x/93/e3/b3/93e3b3f49adec77a3c42f775f6211d46.jpg)
 
 
 # 💫 **Mais Sobre mim:**
 
-- estou querendo aprender programação como um hobby ou uma formação a mais, um desenvolvimento e desafio a mais
+- estou querendo aprender programação como um hobby e uma formação a mais, um desenvolvimento e desafio a mais!
 - eu gosto bastante de jogos, meus favoritos como _**Ghost of tsushima; The last of us 2; mortal kombat X; project zomboid e minecraft**_
 - minha marca de carro favorita é a _**Mitsubishi**_
 
-![](https://media1.tenor.com/m/BJ-9w-MUVCMAAAAC/tis100-sad.gif)
+![](file:///C:/Users/otavio/Downloads/Tohru%20Honda.jpeg)
