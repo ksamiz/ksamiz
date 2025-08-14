@@ -20,4 +20,4 @@
 - eu gosto bastante de jogos, meus favoritos como _**Ghost of tsushima; The last of us 2; mortal kombat X; project zomboid e minecraft**_
 - minha marca de carro favorita é a _**Mitsubishi**_
 
-![](file:///C:/Users/otavio/Downloads/Tohru%20Honda.jpeg)
+![](https://i.pinimg.com/1200x/93/e3/b3/93e3b3f49adec77a3c42f775f6211d46.jpg)
