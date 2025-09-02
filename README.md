@@ -29,4 +29,7 @@
 - SSD 1 Tb
 - 16gb ram 3600ghz
 - fonte 700W
-- monitor philips 180hz 24'
+- monitor philips 180hz 24" Evnia
+
+
+  ![]()
